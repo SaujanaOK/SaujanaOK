@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Saujana
+👋 Hi, I’m @Saujana
 
 - [Twitter](https://twitter.com/SaujanaCrypto)
 - [Discord](https://discordapp.com/users/815456507113504789)
